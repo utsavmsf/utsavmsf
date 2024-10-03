@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jinix_uwu
+- 👋 Hi, I'm utsavmfs
 - 👀 I’m interested in coding and the quantum world!!!!
 - 🌱 I’m currently pursuing my Computer Science degree...
 - 😄 Pronouns: he/him
